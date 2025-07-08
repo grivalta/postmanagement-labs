@@ -1,0 +1,1 @@
+# Computer metaphor (metafora informatica)
